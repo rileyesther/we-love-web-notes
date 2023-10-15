@@ -2,6 +2,9 @@
 
 # We ♥ Web Notes
 
+Een plek voor het bijhouden van aantekeningen van de We ♥ Web presentaties en workshops. 
+
+
 ## Licentie
 
 This project is licensed under the terms of the [MIT license](./LICENSE).
