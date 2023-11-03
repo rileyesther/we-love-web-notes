@@ -1,7 +1,7 @@
 
 ### Tim Borst
 
-Tim Borst bracht een levendige en creatieve presentatie, direct en to the point. Zijn belangrijkste adviezen waren: "Doe alsof totdat je het maakt," "Accepteer elke kans," en "Wees niet bang voor nieuwe uitdagingen." Hij deelde veel over de bedrijven die hij oprichtte en zijn wens om ze verder te laten groeien. Als ervaren professional benadrukte hij het belang van financiële beheersing binnen een bedrijf.
+Tim Borst bracht een levendige en creatieve presentatie, hij was heel erg direct. Zijn belangrijkste adviezen waren: "Doe alsof totdat je het maakt," "Accepteer elke kans," en "Wees niet bang voor nieuwe uitdagingen." Hij deelde veel over de bedrijven die hij oprichtte en zijn wens om ze verder te laten groeien. Als ervaren professional benadrukte hij het belang van financiële beheersing binnen een bedrijf.
 
 De presentatie was informatief en snel. Tim Borst gaf aan dat hij de presentatie op korte termijn voorbereidde, wat verklaart waarom er minder details beschikbaar waren. Desalniettemin was het een informatieve en energieke presentatie. Hij benadrukte het belang van proactiviteit en het omarmen van nieuwe kansen, wat een blijvende indruk achterliet op het publiek.
 
